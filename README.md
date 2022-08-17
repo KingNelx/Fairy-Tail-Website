@@ -4,7 +4,7 @@
 ![image](https://user-images.githubusercontent.com/88817315/185189037-c7a60334-71cc-4c6c-a665-81bcef2d1125.png)
 
 ![image](https://user-images.githubusercontent.com/88817315/185189070-c4f9b5eb-6d31-4f67-82bd-1a36e74c456e.png)
-![image](https://user-images.githubusercontent.com/88817315/185189097-15a35d48-2ea0-4b1f-a14d-32ef27a8d5c8.png)
+
 
 
 ![image](https://user-images.githubusercontent.com/88817315/185189132-ae9b1d02-d267-4dad-8c6a-a572dcdfb11a.png)
